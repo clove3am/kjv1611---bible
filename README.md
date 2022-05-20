@@ -11,4 +11,8 @@ processed for use with:
 > manifest in the flesh, iustified in the **S**pirit, seene of Angels, preached vnto 
 > the Gentiles, beleeued **on** in the world, receiued vp into glory. (1 Timothy 3:16)
 
+> Also he said, Bring the vaile that thou hast vpon thee, and holde it. And when 
+> she helde it, he measured sixe measures of barley, and laide it on her: and 
+> **he** went into the citie. (Ruth 3:15)
+
 - Big thanks to the translators for compiling the KJV 1611 Bible
